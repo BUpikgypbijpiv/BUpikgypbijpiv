@@ -1,6 +1,6 @@
 # 👋 Hey, I'm BUpikgypbijpiv
 
-![Profile banner](https://giphy.com/embed/v6VNOZW85oQj6)
+![Profile banner](https://media1.tenor.com/m/KioUvfuCMXMAAAAd/kmt-yeah.gif)
 
 ---
 
