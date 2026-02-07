@@ -1,6 +1,6 @@
 # 👋 Hey, I'm BUpikgypbijpiv
 
-![Profile banner](https://media.giphy.com/media/L1R1tvI9wfats9UeQ2/giphy.gif)
+![Profile banner](https://giphy.com/embed/v6VNOZW85oQj6)
 
 ---
 
